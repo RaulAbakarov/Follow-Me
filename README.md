@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @raulabakarovv
 - 👀 I’m interested in coding anything...
-- 🌱 I’m currently learning nothing..
+- 🌱 I’m currently learning nothing...😁
 - 📫 How to reach me ... Note:  You can't reach me 😎
 
 <!---
